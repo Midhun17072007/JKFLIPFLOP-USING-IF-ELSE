@@ -1,4 +1,3 @@
-![WhatsApp Image 2024-12-05 at 10 35 42_e49a21cf](https://github.com/user-attachments/assets/9230a439-bdbf-4e10-9c90-d7f3b807b8d6)# JKFLIPFLOP-USING-IF-ELSE
 
 **AIM:** 
 
